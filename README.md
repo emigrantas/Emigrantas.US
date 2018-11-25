@@ -1,2 +1,2 @@
 # Emigrantas.US
-www.Emigrantas.US - Lietuva Amerikoje!
+www.Emigrantas.US - Amerikos Lietuviai!
