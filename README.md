@@ -1,4 +1,4 @@
-# Skelbimai.US - Nemokami Amerikos Lietuvių Skelbimai!
+# www.Skelbimai.US - Nemokami Amerikos Lietuvių Skelbimai!
 
 Emigrantas Social Network!
 
