@@ -1,8 +1,8 @@
-# Emigrantas.US
+# Emigrantas.Org
 
 Emigrantas Social Network!
 
-Email: emigrantas.us@gmail.com
+Email: pagalba@emigrantas.org
 Emigrantas, LLC
 
-www.Emigrantas.US - Socialinis Tinklas!
+www.Emigrantas.Org - Socialinis Tinklapis!
